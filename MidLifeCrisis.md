@@ -5,8 +5,10 @@ Everything is just so dang stressful.
 But then...
 One Day...
 Gerald has an idea.
+What was that idea?
 He is going to wander.
 He is going to wander until he finds what his is looking for.
 Dare I say... he can go the distance.
+(Yes I quoted Hercules)
 Gerald packed up his apartment and took his second pair of pants and his 2 plants and got on the road.
 He packed everything up into his scooter and drove away.
