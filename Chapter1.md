@@ -8,3 +8,5 @@ The bad villagers had no idea what they had done.
 Gerald's stepfather was the final true magician.
 Living as the last magician, he was driven to debt trying to create more magical deer.
 Gerald's stepfather was not so dear.
+WHy was he not so dear?????
+ITS A PUN
